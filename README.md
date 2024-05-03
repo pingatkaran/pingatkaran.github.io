@@ -1,1 +1,0 @@
-# pingatkaran.github.io
